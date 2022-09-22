@@ -7,6 +7,6 @@
 -Baccalauréat Scientifique (2019)
 -DUT Informatique (2021)
  
- ![Mon image](image.jpg)
+ ![Mon image](diplome-heureux-lentreprise-emploi-formation_5614995.jpg)
  
   
